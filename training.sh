@@ -1,0 +1,1 @@
+Training will start form momday"
